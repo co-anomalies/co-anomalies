@@ -1,2 +1,2 @@
-all art belong to @ / luminous_slime on twitter .. ꜝꜝ
-![FZu4ypLUEAA1Q6P](https://github.com/co-anomalies/co-anomalies/assets/173427226/ba577f32-6c0a-413b-a6ad-af300c629205)
+![](https://media.discordapp.net/attachments/1058993549925961870/1252995688464388227/Untitled257_20240619213645.png?ex=667638eb&is=6674e76b&hm=7bcf7937c2f6d8ec01068df2b08f6931813d1de7f0c3c6c185edfc49131f6cac&=&format=webp&quality=lossless&width=1025&height=237)
+<p align="center"> **hi** ! </p>
