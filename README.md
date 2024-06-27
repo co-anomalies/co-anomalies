@@ -2,6 +2,6 @@
     <img width="450" src="https://github.com/co-anomalies/co-anomalies/assets/173427226/4398b03c-8fad-4186-a63b-98d0b99d1a9f" alt="bnuy">
 </p>
 <p align="center"> ❰❰ㅤhi ! ㅤWound , Beetle , Tino + ᵔᴗᵔ </p>
-<p align="center"> itㅤ₎ㅤany . !  ✦ㅤadhdpolar syshost </p>
+<p align="center"> hyrㅤ₎ㅤany . !  ✦ㅤadhdpolar syshost </p>
 <p align="center"> mascㅤ ﾉㅤany terms ㅤഒ multifandom </p>
 <p align="center">  .. I am so nice don't be scared to int pls  </p>
